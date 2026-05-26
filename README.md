@@ -98,7 +98,7 @@ Sou apaixonado por tecnologia e gosto de transformar ideias em projetos criativo
 
 <div align="center">
 
-_"A tecnologia move o mundo."_ — Steve Jobs
+_"As circunstâncias do nascimento de alguém são irrelevantes. É o que você faz com o dom da vida que determina quem você é."_ — Mewtwo
 
 </div>
 
